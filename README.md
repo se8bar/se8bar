@@ -6,6 +6,6 @@
 - 電信 📫 https://48o48.com ...
 - 移動 👋 https://48d48.com ...
   
-- 移動 http://a-hifado02.fli5rg4ew34vr5.xyz
-- 移動 http://a-hifado03.fli5rg4ew34vr5.xyz
-- 移動 http://a-hifado02.gli5rg4ew34vr5.xyz
+- 移動 https://a-hifado02.fli5rg4ew34vr5.xyz
+- 移動 https://a-hifado03.fli5rg4ew34vr5.xyz
+- 移動 https://a-hifado02.gli5rg4ew34vr5.xyz
