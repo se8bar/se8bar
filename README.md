@@ -8,4 +8,4 @@
   
 - 移動 https://aavv.48c48.xyz
 - 移動 https://a-hifado03.fli5rg4ew34vr5.xyz
-- 移動 https://a-hifado02.gli5rg4ew34vr5.xyz
+- 移動 https://a-hifado03.gli5rg4ew34vr5.xyz
