@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @se8bar
 - 👀 I’m interested in ...
-- 🌱 -- 滿18歲,請收臧本網址 --由于
+- 🌱 -- 滿18歲,請收臧本網址 --由于網络线路不同进不去可多次刷新
 - 
 - 聯通 💞️ https://48a48.com ...
 - 電信 📫 https://48o48.com ...
@@ -9,3 +9,4 @@
 - 移動 https://akwz.48c48.xyz
 - 移動 https://a-hifado03.fli5rg4ew34vr5.xyz
 - 移動 https://a-hifado03.gli5rg4ew34vr5.xyz
+- 移動 https://a-hifado01.aa3dr4df.sbs
