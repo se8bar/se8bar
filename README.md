@@ -7,6 +7,6 @@
 - 移動 👋 https://48d48.com ...
   
 - 移動 https://akwz.48c48.xyz
-- 移動 https://a-hifado04.fli5rg4ew34vr5.xyz
+- 移動 https://a-hifado06.fli5rg4ew34vr5.xyz
 - 移動 https://a-hifado04.gli5rg4ew34vr5.xyz
 - 移動 https://a-hifado01.aa3dr4df.sbs
